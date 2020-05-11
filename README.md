@@ -2,7 +2,7 @@
 Report on Abstractive summary
 Name – Manish Kumar
 Student of praxis business school
-Contact Info- manish.kumar@praxis.ac.in Mobile No - 7903061900
+Contact Info- manish.kumar@praxis.ac.in 
 Abstract:
 When I was in my Primary School we got a task like that write summary on given topic then
 we took the important word and write the summary but our teacher’s expectation is
